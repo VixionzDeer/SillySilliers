@@ -1,4 +1,4 @@
-![OIP (4)](https://github.com/user-attachments/assets/80fb8c7d-1a1a-4fb0-8427-f85b90b0dbff)
+
 # SillySilliers
 *Insert giving you a silly goose pin with a goose on it very perfectly.*
 
