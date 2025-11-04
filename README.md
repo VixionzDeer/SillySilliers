@@ -1,5 +1,6 @@
 
-# SillySilliers
+# SillySilliers<img width="548" height="386" alt="Screenshot 2025-02-27 3 56 25 PM" src="https://github.com/user-attachments/assets/8e66757d-263c-4fc3-ae69-e9c117b3a70a" />
+
 *Insert giving you a silly goose pin with a goose on it very perfectly.*
 
 Hello!! I am VixionzDeer, Or SillySilliers! I prefer either. I am a MINOR. I normally play Roblox and Ponytown! I am looking for some friends on ponytown, Since I took a break, everyone forgot about me. Or donest speak with me anymore.I have Paranoia on someone leaving me. So I do have trust issues! Other than this, I am not sensitive, I am a jokster sometimes, I DONT TAKE STUFF SERIOUSLY, OR OFFENSIVE!!
