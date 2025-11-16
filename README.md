@@ -14,14 +14,18 @@ Whisper or talk to me! i am free to new friends, just nervous.
 
 
 DNI :
-Spawnism accusers, NSFW fandoms, Weird in-general (Unless your my friend because I love when you do that and be silly, just dont take it to far!!), Over 29, Under 8 (Under 8 do not interact with me because I do sometimes say adult jokes to friends who KNOW I do this. If your someone who is offended easily by it, tell me so I don't mention it!) . People who call Oblivion a spawnism song, Grimes did NOT deserve the hate on her song because some Trend about some SPAWNPOINT IN ROBLOX. Or thinking a oc of mine with a spawnpoint block as it's torso is spawnism (THIS IS FOR ROBLOX, IGNORE IF PONYTOWN), <- Most of my skins were made before hand and does not speak about that. If you are perhaps rude in general and cannot control your anger towards anything, Do not interact with me. If you cover me Please get off unless friend. 
+Spawnism accusers, NSFW fandoms, Weird in-general (Unless your my friend because I love when you do that and be silly, just dont take it to far!!), Over 29, Under 8 (Under 8 do not interact with me because I do sometimes say adult jokes to friends who KNOW I do this. If your someone who is offended easily by it, tell me so I don't mention it!) . People who call Oblivion a spawnism song, Grimes did NOT deserve the hate on her song because some Trend about some SPAWNPOINT IN ROBLOX. Or thinking a oc of mine with a spawnpoint block as it's torso is spawnism (THIS IS FOR ROBLOX, IGNORE IF PONYTOWN), <- Most of my skins were made before hand and does not speak about that. If you are perhaps rude in general and cannot control your anger towards anything someone may say,
 
 Do not vent to me unless you are MY FRIEND. I do not take public vents well unless you talk to me first!!. I will Block you if you even do any of this stuff. 
 
 
 
 
-FOR FRIENDS  : I am not online as much anymore, I focus on Real world things, FFA Shifts, and even more stuff. I am VERY sorry.
+FOR FRIENDS  : I am not online as much anymore, I focus on Real world things, School.
 
 
 For strangers : I am free to you or anyone, Just don't be in my DNI list ! !  I find joy in meeting new people and hanging out with them. (Once your a friend of mine!!) I am very nice and goofy at the same time. *I say as I AGGRESSIVELY take out a silly goose pin.*  I also like liking peoples skins because I feel like that makes them happier !! !!!!
+
+
+
+Please don't take any of my words ooc seriously, I can be funny.
