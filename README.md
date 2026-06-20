@@ -17,3 +17,6 @@
 I dont bite ! 
 
 You can interact with me aslong as your not in an dni/iwec fandom list! (Unless your my friend!).
+I am an last cuddlebug, you have to do it first, I have no trigger, (This is ONLY for friends, and cf)
+
+------------------------
