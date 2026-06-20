@@ -3,6 +3,7 @@
 
 "DISEASEFREAK! ! ! CORDYCEPS, CHRONCI WASTING DISEAAAAASE!"
 
-<img width="666" height="666" alt="c39e89de552d15ea88f8b7e1be79a687" src="https://github.com/user-attachments/assets/0177f739-a210-4493-8a85-2dc9587cbc07" />
+<img width="342" height="392" alt="Screenshot 2026-06-18 7 32 50 PM" src="https://github.com/user-attachments/assets/445449ca-d9d5-4068-be29-ac8aa5617057" />
+
 
 Tricked you, imagine that.
